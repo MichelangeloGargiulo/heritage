@@ -1,1 +1,1 @@
-Pagina di presentazione Heritage — Circolo Nautico Versilia
+Pagina di presentazione Heritage — Club Nautico Versilia
